@@ -41,18 +41,16 @@
 
 
 ### Developer 
-- Asjadˢʰ#0060, Dev7knight#3544 is the Developer of this Zero Attacker
+- ༺ᴘͥʜɪʟɪͣᴘͫ༻ᴮᴼˢˢ#3578, Dev7knight#3544 is the Developer of this Zero Attacker
 - Contact for any kind of help 
-- [support server](https://discord.gg/Mej5gesZTu)
+- [support server](https://discord.gg/fgHJ87fcuv)
 
 
-[Asjad Personal Site](https://www.asjadowo.xyz/)
 
-[Knight Personal Site BETA](https://dev7knight.github.io/)
 
-[Asjad Discord Server](https://discord.gg/Mej5gesZTu)
+Discord Server](https://discord.gg/fgHJ87fcuv)
 
-[Knight Discord Server](https://discord.gg/MVmDYSVdzF)
+Discord Server](https://discord.gg/fgHJ87fcuv)
 
 
 - Zero Tool
