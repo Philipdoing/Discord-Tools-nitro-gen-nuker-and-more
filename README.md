@@ -41,7 +41,7 @@
 
 
 ### Developer 
-- ༺ᴘͥʜɪʟɪͣᴘͫ༻ᴮᴼˢˢ#3578, Dev7knight#3544 is the Developer of this Zero Attacker
+- ༺ᴘͥʜɪʟɪͣᴘͫ༻ᴮᴼˢˢ#3578 is the Developer of this Zero Attacker
 - Contact for any kind of help 
 - [support server](https://discord.gg/fgHJ87fcuv)
 
